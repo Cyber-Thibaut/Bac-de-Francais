@@ -8,7 +8,7 @@
 ### Le fonctionnement de l’épreuve
   L’oral de Français est un tête à tête entre vous, le candidat, et un jury que vous ne connaissez pas. Le principe de l’épreuve est simple : il s’agit d’une explication de texte menée par le candidat, suivie d’un entretien avec le jury. Il faut donc conduire un véritable petit exposé d’une dizaine de minutes, et répondre à quelques questions pendant dix autres minutes.
 
-**__En tout donc, vingt minutes d’épreuve vous attendent.__**
+**En tout donc, vingt minutes d’épreuve vous attendent.**
 
 ### Organiser ses révisions
   Il apparaît très difficile de réussir cette épreuve sans un minimum de préparation. Il faut donc que vous organisiez vos révisions. Il faut savoir que l’examinateur se verra remettre une liste, concoctée à cet effet par votre professeur de Français. Sur cette liste se trouvent **tous les textes étudiés en classe pendant l’année de première.** Cela inclut les groupements de textes et les passages extraits d’œuvres complètes. Il est possible d’être interrogé sur n’importe lequel des textes figurant dessus. L’examinateur pointera un texte, et il faudra l’étudier. Pour bien préparer cet oral, il apparaît donc impératif d’écrire des **fiches récapitulatives** pour chaque texte, de reprendre les cours, emprunter ceux des copains pour les jours d’absence, et rédiger de belles fiches résumant l’essentiel des choses à dire sur chaque texte. Le fait d’écrire de nouveau ces informations, de les reformuler sur des fiches permet de se les réapproprier. 
